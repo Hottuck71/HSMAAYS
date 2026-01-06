@@ -1,2 +1,0 @@
-# HSMAAYS
-youth show 
